@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Stephen-kt
+- 👋 Hi, I’m Stephen
